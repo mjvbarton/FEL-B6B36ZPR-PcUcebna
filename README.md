@@ -1,1 +1,1 @@
-Vitajte na stránkach našeho projektu.
+Vítejte na stránkách našeho projektu!
